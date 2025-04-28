@@ -1,4 +1,4 @@
-## Hey! I'm Hoonam Lau 👋
+## Hey! I'm Haonan 👋
 
 I am a software engineer from China.🐼
 
